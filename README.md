@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Srivalli Patel
-- 👀 I’m interested in coding, psychology, and spirituality.
+- 👀 I’m interested in coding,machine learning , psychology, and spirituality.
 - 🏋️‍♀️ fitness freak
 - 📫 How to reach me srivallipatel1105@gmail.com
 
