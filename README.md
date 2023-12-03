@@ -1,5 +1,5 @@
 - Hello......
-- 💻 I’m interested in coding, machine learning.'
+- 💻 I’m interested in coding, machine learning ,Deep Learning '
 - ⭐Always looking for new challenges and opportunities to learn and grow.
 - ⭐Team player and always willing to help others.
 - ✉️ How to reach me srivallipatel1105@gmail.com
